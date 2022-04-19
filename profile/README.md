@@ -4,7 +4,7 @@
 
 #### 叫我根浩就可以。
 
-<img src="image/c0c111812047b72c8a5773a05a464d6.jpg" alt="c0c111812047b72c8a5773a05a464d6" style="zoom: 25%;" />
+![c0c111812047b72c8a5773a05a464d6](https://user-images.githubusercontent.com/103744663/163923103-97a4a9a0-4c1f-4a7b-9f2c-cc593a0325d1.jpg)
 
 
 
